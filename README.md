@@ -57,7 +57,7 @@ To start my career as a Network Engineer in a global organization where I can ap
 
 ## 📫 Contact Me
 📧 rama.devisrihruthik@gmail.com  
-🔗 LinkedIn: https://linkedin.com/in/yourprofile  
+🔗 LinkedIn: https://linkedin.com/in/ramachandruni-devi-sri-hruthik-30b94a297 
 
 ---
 
